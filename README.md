@@ -1,1 +1,1 @@
-Please dont copy any of my work. I made these! Please and thank you.
+Please dont steal any of my work. Please and thank you.
